@@ -1,1 +1,1 @@
-No Content: https://beatware.xyz/embed.sellpass.io/embed.js
+No Content: https://Testerino.xyz/embed.sellpass.io/embed.js

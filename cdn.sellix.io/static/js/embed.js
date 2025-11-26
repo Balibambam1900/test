@@ -1,1 +1,1 @@
-No Content: https://beatware.xyz/cdn.sellix.io/static/js/embed.js
+No Content: https://Testerino.xyz/cdn.sellix.io/static/js/embed.js
